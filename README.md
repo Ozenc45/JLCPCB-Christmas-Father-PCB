@@ -6,4 +6,6 @@ I designed one very nice and warm Christmas PCBs for the JLCPCB. I hope a nice n
 
 Merry Christmas.
 
+Thank you. 
+Very high quality PCB production.
 https://jlcpcb.com/
